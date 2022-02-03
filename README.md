@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AkramBelabbas
+- 👀 I’m interested in code and more but if you to know you have tu ask me :)
+- 🌱 I’m currently learning code, i'm a beginner so don't be ashame to tell me that i don't do things the good ways
+- 💞️ I’m looking to collaborate on many projects.
+- 📫 How to reach me use my mail !
